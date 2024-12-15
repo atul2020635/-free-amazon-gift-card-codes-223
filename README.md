@@ -1,10 +1,10 @@
 -free-amazon-gift-card-codes-223
 
 
-**(click here to get now)[https://goto.now/cME3X]**
+**[click here to get now](https://goto.now/cME3X)**
 
 
-**(click here to get now)[https://goto.now/cME3X]**
+**[click here to get now](https://goto.now/cME3X)**
 
 
 1. Types of Free Gift Cards
